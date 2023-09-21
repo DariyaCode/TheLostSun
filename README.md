@@ -1,2 +1,2 @@
 # TheLostSun
-just doing my novel
+just doing novel
